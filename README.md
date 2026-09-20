@@ -1,16 +1,21 @@
-## Hi there 👋
+$${\color{#7a7a7a}\normalsize{\textsf{ac\ @seasinstars pint}}}$$
 
-<!--
-**333by/333by** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<img src="https://github.com/333by/333by/blob/main/media/Untitled116_20260921044109.png" width="400px"/>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+```math
+\text{\color{#705c87}Umbrella} \ \text{ ..˙˙˙˙ } \ \text{\color{#a997ba}they / them}
+```
+```math
+\text{\color{#8677a1}tmascfem enby 🌂 sapphillean}
+```
+```math
+\text{\color{#705c87}19yrs} \ \text{...} \ \text{ru} \ \text{᎔᎔} \ \text{\color{#a997ba}ASD}
+```
+<br>
+
+***
+
+<br>
+
+![](https://github.com/333by/333by/blob/main/media/Untitled115_20260921043826.png)
