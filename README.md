@@ -1,6 +1,6 @@
 $${\color{#7a7a7a}\normalsize{\textsf{ac\ @seasinstars pint}}}$$
 
-<p align="cetner">
+<p align="center">
 <img src="https://github.com/333by/333by/blob/main/media/Untitled116_20260921044109.png" width="400px"/>
 </p>
 
