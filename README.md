@@ -1,1 +1,11 @@
-<p align="center"><img src="https://github.com/333by/333by/blob/main/media/Screenshot_20260922_050336_Gallery.png" width="600px"/><br><br>FIVE phones. Skincares  perfume  tea paint for their horn and one choo choo train. This bum's greed sickens me we have to kill them
+<p align="center">
+Oh to be desired... but I'm too hideous and unlovable and larp too muc.h
+<img src="media/Untitled260_20261022183732.png" width="600px"/><br>
+Medkit ⑅ he ﾉ she ﾉ all . 19yo (2007) 🇷🇺<br>
+autistic, ?-ing cdd . some cluster b slop<br>
+transmasc deer & borzoi thing. idk man
+
+***
+
+<p align="justify">
+i dont make friends w those under 17. ok<br><br>
